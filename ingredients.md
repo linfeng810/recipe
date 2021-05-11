@@ -1,4 +1,5 @@
-* 2 avacados
+*1 tbsp of chilie
+*  2 avacados
 * 1 lime
 * 1 tbsp salt
 * 1/2 onion
